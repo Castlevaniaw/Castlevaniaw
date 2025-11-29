@@ -1,4 +1,4 @@
-(https://i.pinimg.com/736x/f8/b0/a3/f8b0a3dd493808cbf8f33770b8e18350.jpg)
+ahhh ok
 
 <!--
 **Castlevaniaw/Castlevaniaw** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
