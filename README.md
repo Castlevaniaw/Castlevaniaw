@@ -9,6 +9,8 @@
 
   '
 ![32a53db6df27d7bd6a8919a9c0cc69bb](https://github.com/user-attachments/assets/9bcc08b3-d0cf-4e90-8f5a-1ac5f07bbc42)
+
+
 Hiii! Im KEI but u can call me K. these are some things abt ℳ𝑒
 .im 17 ꉂ(˵˃ ᗜ ˂˵)
 he/him!
