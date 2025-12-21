@@ -1,4 +1,4 @@
-ִֶָ. ..𓂃 ࣪ ִֶָ🪽་༘࿐
+ִֶָ. ..𓂃 ࣪
 ❛  𓏴 !
 
 
@@ -9,3 +9,12 @@
 
   '
 ![32a53db6df27d7bd6a8919a9c0cc69bb](https://github.com/user-attachments/assets/9bcc08b3-d0cf-4e90-8f5a-1ac5f07bbc42)
+Hiii! Im KEI but u can call me K. these are some things abt ℳ𝑒
+.im 17 ꉂ(˵˃ ᗜ ˂˵)
+he/him!
+ 𓏲ּ𝄢 im a Bsexual!
+.28~05~210
+FRIENDLY!!
+i need friends./
+p0v. You’re lying in the snow for the first time eve
+my love ˙𐃷˙ BLADE . NAGUMO.LELOUCH!!
