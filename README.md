@@ -2,13 +2,15 @@
 ❛  𓏴 !
 
 
-![5d574d726a1673f33c8dc5038006f02f](https://github.com/user-attachments/assets/b30085b2-5a9d-44a8-bbc7-a0a84ffdacda)
+![h](https://github.com/user-attachments/assets/d026b69f-0527-4116-937a-7e8c6bef4e3f)
+
 
 ⠀⠀⠀⠀⠀⢘⡦⡀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⢀⢴⡃⠀⠀⠀⠀
 
 
+
   '
-![32a53db6df27d7bd6a8919a9c0cc69bb](https://github.com/user-attachments/assets/9bcc08b3-d0cf-4e90-8f5a-1ac5f07bbc42)
+![7f2c5092eb778b3423f634055ffea540](https://github.com/user-attachments/assets/b7f8970b-aaba-4370-91f6-86f269a65cd9)
 
 
 Hiii! Im KEI but u can call me K. these are some things abt ℳ𝑒
