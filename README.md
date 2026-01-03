@@ -1,7 +1,8 @@
 ִֶָ. ..𓂃 ࣪
 ❛  𓏴 !
 
-![@](https://github.com/user-attachments/assets/3366ae2a-3d6e-40f4-a127-409e15566936)
+![aeb067b15a7d0614163347245fb1f0e6](https://github.com/user-attachments/assets/d0c5b016-c68c-4029-85dc-60da9588c4d6)
+
 
 
 ⠀⠀⠀⠀⠀⢘⡦⡀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⢀⢴⡃⠀⠀⠀⠀
