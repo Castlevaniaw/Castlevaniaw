@@ -1,8 +1,8 @@
 ִֶָ. ..𓂃 ࣪
 ❛  𓏴 !
 
-![7f09d0b05a710c30e6c47500aa63b2a6](https://github.com/user-attachments/assets/9a912452-c557-4c1c-9fab-d9587912eb5f)
 
+![B](https://github.com/user-attachments/assets/43fb81bb-ef66-4ee6-8066-74de39995ade)
 
 
 
@@ -13,7 +13,7 @@
   '
 
 
-![50ff19ca7545b9c06ba10ef9b757a318](https://github.com/user-attachments/assets/a5590378-e6ab-4a68-be46-9931f7c74ad4)
+![00b390b7ed142a0ebfbb93691ae2f088](https://github.com/user-attachments/assets/a0a51028-12c4-4e27-8e43-2df6ac9227f5)
 
 
 Hiii! Im KEI but u can call me K. these are some things abt ℳ𝑒 
