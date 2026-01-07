@@ -1,41 +1,8 @@
-ִֶָ. ..𓂃 ࣪
-❛  𓏴 !
+.....................
 
+![8b82ed7ae785f50ac6d31459159d37f8](https://github.com/user-attachments/assets/5b9d8ec8-562e-4f13-bec0-217d5b915845)
+— We all change, calmly, silently, wearily, and sorrowfully.
 
-![B](https://github.com/user-attachments/assets/43fb81bb-ef66-4ee6-8066-74de39995ade)
+— “Time is like a river; when you think you can’t cross it, it’s already reached the horizon in the blink of an eye, and when you think you’ve crossed it, it’s still flowing downstream within you.”
 
-
-
-⠀⠀⠀⠀⠀⢘⡦⡀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⢀⢴⡃⠀⠀⠀⠀
-
-
-
-  '
-
-
-![00b390b7ed142a0ebfbb93691ae2f088](https://github.com/user-attachments/assets/a0a51028-12c4-4e27-8e43-2df6ac9227f5)
-
-
-Hiii! Im KEI but u can call me K. these are some things abt ℳ𝑒 
-
-
-
-
-.im 17 ꉂ(˵˃ ᗜ ˂˵)
-
-he/him!
-
- 𓏲ּ𝄢 im a Bsexual!
-
- 
-.28~05~210
-
-FRIENDLY!!
-
-i need friends./
-
-p0v. You’re lying in the snow for the first time eve
-
-my love ˙𐃷˙ BLADE . NAGUMO.LELOUCH!!
-
-
+— “We’ve all grown up, made one mistake, and before we know it, it’s almost twilight.”
